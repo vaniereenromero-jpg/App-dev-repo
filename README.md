@@ -1,1 +1,1 @@
-My first repository
+My favorite book is Fruits Basket by Natsuki Takaya because it beautifully portrays love, kindness, friendship, and self-acceptance. I love how the story reminds me that everyone has their own struggles and deserves to be understood and loved. It makes me appreciate the little things in life and the importance of having a gentle heart.
